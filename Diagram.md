@@ -1,3 +1,6 @@
 ## Блок-схема алгоритма ##
 
-![Diagram](https://cloud.mail.ru/public/Z4gG/P9qbp9Tun)
+![Diagram](https://thumb.cloud.mail.ru/thumb/xw1/Чистая%20вода.jpg)
+
+![gnkdnkw](https://thumb.cloud.mail.ru/thumb/xw1/Чистая%20вода.jpg)
+
